@@ -1,16 +1,12 @@
-## Hi there 👋
+Why Cargoz?
 
-<!--
-**Cargoz123/Cargoz123** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Better Control. Far Better Experience.
+Experience the new way of managing storage that the traditional companies can never give you. Get higher visibility, better control and far better experience.
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Any type, any size, any location
+Low fixed cost
+Monthly payments
+Pay as you use model
+No annual contracts
+No real estate brokers
+Warehouse space on demand
